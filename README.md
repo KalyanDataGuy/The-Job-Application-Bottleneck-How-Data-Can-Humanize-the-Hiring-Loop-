@@ -20,4 +20,6 @@ The goal isn’t automation overload — it’s *data empathy*.
 
 ✨ **Takeaway:** Let’s make hiring measurable and meaningful again.  
 
+<img width="1024" height="1536" alt="KalyanDataGuy 1AP" src="https://github.com/user-attachments/assets/23d41ae7-cc81-4f01-93aa-cbc61800d5b0" />
+
 *KalyanDataGuy © 2025*  
